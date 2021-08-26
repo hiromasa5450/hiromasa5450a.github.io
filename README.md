@@ -1,1 +1,1 @@
-# hiromasa5450a.github.io
+ https://hiromasa5450.github.io/sango/
